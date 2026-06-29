@@ -1,4 +1,4 @@
-# 
+# Ultime Affinity Photo filtres pour Mac OS | Turbo Affinity Photo filtres pour PC Windows. Avec filet de dégradé et éditeur de shaders — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
